@@ -1,0 +1,1 @@
+# Man ir grūtības saprast GitHub
